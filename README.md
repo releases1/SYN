@@ -1,4 +1,4 @@
-# SYN机场官网地址
+# SYN Network机场官网地址
 
 最新地址：[synn.cc](https://watashi.synn.moe/register?code=p1NOYyua)
 
@@ -18,6 +18,9 @@ Season 季付 10% 优惠
 Year 年付 15% 优惠
 
 TwoYears 两年付 20% 优惠
+
+优惠代码 SYN618 — 所有套餐享受 15% 折扣
+⏰ 优惠截止时间：6月18日 24:00 — 抓紧时间！
 
 日常充值满返
 
