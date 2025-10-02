@@ -1,4 +1,4 @@
-# SYN Network机场官网地址
+# SYN Network 闪耀暖暖 / 闪耀网络 机场官网地址
 
 最新地址：[synn.cc](https://watashi.synn.moe/register?code=p1NOYyua)
 
